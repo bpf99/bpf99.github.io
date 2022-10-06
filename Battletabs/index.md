@@ -3,7 +3,7 @@
 Battletabs is a multiplayer online web3 game like battleship where the goal is to sink your opponent's ships before they sink yours. The twist is, each ship has a special ability and each can change the game completely. There's a ton of strategy and I highly recommend trying it out.
 
 In the game I am a:
-- moderator of the [official discord server](discord.gg/battletabs)
+- moderator of the [official discord server](https://discord.gg/battletabs)
   - longest active player and discord member 
   - also help with game balancing
 - tournament winner
