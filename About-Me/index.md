@@ -1,6 +1,7 @@
 # I'm bpf99. 
 
 Discord doesn't give enough room for an about me so here I am trying to learn to code.
+I'm available from <t:57600:t> to to <t:104400:t> on weekdays.
 
 You can call me:
 - bpf99
