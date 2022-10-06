@@ -20,3 +20,5 @@ My Battletabs Profile:
   - also have made many other guides for the game
 
 Feel free to ask me for tips during the times I'm available. Pings in the server and DMs are both fine, but I only accept friend requests in the game, not on discord.
+
+[Back home](https://bpf99.github.io/About-Me)
