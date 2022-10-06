@@ -1,12 +1,27 @@
-# I'm bpf99.
-## 
-### Heading 3 
+# I'm bpf99. 
 
-Paragraph 
+Discord doesn't give enough room for an about me so here I am trying to learn to code.
 
-- List item 1 
-- List item 2 
-- List item 3 
+You can call me:
+- bpf99
+- bpf
+- Pyra
+- Pancake
 
-[Link](Path) 
+Stuff I enjoy doing
+- Hanging out with friends
+- Running (5:30 mile with a goal of sub 5)
+- Video Games
+- Reading
+- Piano (_when it's what I want to play_)
+
+Main video games I play
+- Pokémon
+- BattleTabs!
+ - [About me for BT](bpf99.github.io/Battletabs)
+- Super Smash Bros. (Terry main)
+- Fall Guys
+- Clash Royale
+
+I mean that's all unless you want to see more lol 
 
