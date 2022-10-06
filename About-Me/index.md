@@ -18,7 +18,7 @@ Stuff I enjoy doing
 Main video games I play
 - Pokémon
 - BattleTabs!
-  - [About me for BT](bpf99.github.io/Battletabs)
+  - [About me for BT](https://bpf99.github.io/Battletabs)
 - Super Smash Bros. (Terry main)
 - Fall Guys
 - Clash Royale
