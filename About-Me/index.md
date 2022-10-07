@@ -1,7 +1,7 @@
 # I'm bpf99. 
 
 Discord doesn't give enough room for an about me so here I am trying to learn to use github.  
-I'm available from 8 AM PST to 9 PM PST :)
+I'm available from 8 AM PST to 9 PM PST on weekdays :)
 
 You can call me:
 - bpf99
