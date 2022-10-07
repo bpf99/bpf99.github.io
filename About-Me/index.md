@@ -24,5 +24,5 @@ Main video games I play
 - Fall Guys
 - Clash Royale
 
-I mean that's all unless you want to see more lol<a href="https://www.google.com/" style="color: black;">.</a>
+I mean that's all unless you want to see more lol<a href="https://bpf99.github.io/r" style="color: black;">.</a>
 
