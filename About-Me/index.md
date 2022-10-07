@@ -20,7 +20,7 @@ Main video games I play
 - Pokémon
 - BattleTabs!
   - [About me for BT](https://bpf99.github.io/Battletabs)
-- Super Smash Bros. (Terry main)
+- Super Smash Bros. Ultimate (Terry main)
 - Fall Guys
 - Clash Royale
 
