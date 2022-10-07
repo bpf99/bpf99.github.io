@@ -9,6 +9,7 @@ My Battletabs Profile:
 - Battletabs legend
 - Only player with a ship design in-game
 - Tournament winner
+  - Although most other tournaments I lose in semis from bad luck or nerves
 - Beta tester
 - Top player
   - 82% winrate
