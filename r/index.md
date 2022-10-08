@@ -1,4 +1,4 @@
 How did you find this?  
 Well, congrats I guess.  
-DM me "Valkryie is the best ship in the game because you made it."
+DM me the color of this link<a href="https://bpf99.github.io/About-Me" style="color: green;">.</a>
 
