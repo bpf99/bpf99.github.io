@@ -23,7 +23,7 @@ Main video games I play
   - [BT About Me](https://bpf99.github.io/Battletabs)
 - Super Smash Bros. Ultimate (Terry main)
 - Fall Guys
-- Clash Royale
+- Clash Royale 
 
 I mean that's all unless you want to see more lol<a href="https://bpf99.github.io/r" style="color: black;">.</a>
 
