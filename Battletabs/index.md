@@ -5,7 +5,7 @@ Battletabs is a multiplayer online web3 game like battleship where the goal is t
 My Battletabs Profile:
 - Moderator of the [official Discord server](https://discord.gg/battletabs)
   - Longest active player and Discord member 
-  - I also help with game balancing
+  - I also help the developers with game balancing
 - Battletabs legend
 - Only player with a ship design in-game
 - Tournament winner
@@ -14,6 +14,7 @@ My Battletabs Profile:
 - Top player
   - 82% winrate
   - Able to play any playstyle in the game
+    - often created
   - Extremely versatile 
   - Over 50 max winstreak
   - Other top players around my level are [cAtAmArAn](https://battletabs.io/player/12e8165d-59c8-4567-86b5-d99726763848), [Flyspeck101](https://battletabs.io/player/3a9ee309-f2e4-446b-a9f9-e1479ffb1bc8), [Kade](https://battletabs.io/player/5b082268-60a3-470d-b3b9-0bc0cee39eb5), and [Collateral Dmge](https://battletabs.io/player/cd32273d-2616-4e55-aa30-977280c41e89/profile) (when he's active at least)
