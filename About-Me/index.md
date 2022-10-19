@@ -17,10 +17,10 @@ Stuff I enjoy doing
 - Piano (_when it's what I want to play_)
 
 Main video games I play
-- Pokémon
-  - [Pokémon About Me](https://bpf99.github.io/Pokemon) 
 - BattleTabs!
   - [BT About Me](https://bpf99.github.io/Battletabs)
+- Pokémon
+  - [Pokémon About Me](https://bpf99.github.io/Pokemon) 
 - Super Smash Bros. Ultimate (Terry main)
 - Fall Guys
 - Clash Royale 
