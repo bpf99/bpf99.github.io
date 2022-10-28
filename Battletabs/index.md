@@ -11,7 +11,7 @@ My Battletabs Profile:
 - Tournament winner
   - Although most other tournaments I lose in semis from bad luck or nerves
 - Beta tester
-- Top player
+- One of the 5 best players in the world
   - 82% winrate
   - Able to play any playstyle in the game
   - Creator of many heavily used fleets and meta counters
