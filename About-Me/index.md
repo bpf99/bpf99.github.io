@@ -9,12 +9,14 @@ You can call me:
 - Pyra
 - Pancake
 
+[My Blog](https://bpf99.github.io/Blog)
+
 Stuff I enjoy doing
 - Hanging out with friends
 - Running (5:30 mile with a goal of sub 5)
 - Video Games
 - Reading
-- Piano (_when it's what I want to play_)
+- Piano (when it's what I want to do)
 
 Main video games I play
 - BattleTabs!
