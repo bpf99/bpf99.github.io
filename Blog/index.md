@@ -23,3 +23,5 @@ Over 13 years ago (in case you're wondering if I'm violating Discord TOS): I was
 11/29 I like can't focus on my work I keep getting distracted. BT 3D came out today and I'm organizing the invitational tournament too. It doesn't help that I'm not able to stay up that late, either.
 
 11/30 Had a history test today, it sucked like always. The multiple choice questions always get me.
+
+12/2 KOREA WON THEIR MATCH!!! and god i still have so much work to do
