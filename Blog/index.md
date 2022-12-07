@@ -25,3 +25,9 @@ Over 13 years ago (in case you're wondering if I'm violating Discord TOS): I was
 11/30 Had a history test today, it sucked like always. The multiple choice questions always get me.
 
 12/2 KOREA WON THEIR MATCH!!! and god i still have so much work to do
+
+12/3 Not so lazy day, got some work done
+
+12/5 Grinded notes for like 4 hours, going well
+
+12/6 More notes to take today and a couple essays left
