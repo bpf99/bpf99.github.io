@@ -31,3 +31,9 @@ Over 13 years ago (in case you're wondering if I'm violating Discord TOS): I was
 12/5 Grinded notes for like 4 hours, going well
 
 12/6 More notes to take today and a couple essays left
+
+12/9 Grades settling down, looking pretty good!
+
+12/10 Busy the whole day, only a couple hours of free time so I took some time to myself
+
+12/11 Finishing up a couple projects
