@@ -37,3 +37,5 @@ Over 13 years ago (in case you're wondering if I'm violating Discord TOS): I was
 12/10 Busy the whole day, only a couple hours of free time so I took some time to myself
 
 12/11 Finishing up a couple projects
+
+12/14 FINAL STRETCH
