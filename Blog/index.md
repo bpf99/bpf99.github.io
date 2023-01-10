@@ -41,3 +41,11 @@ Over 13 years ago (in case you're wondering if I'm violating Discord TOS): I was
 12/14 FINAL STRETCH
 
 1/3 I'm back!!! Super jetlagged lol
+
+1/4 Stuck at home, slept in a lot cuz jetlag
+
+1/7 Isn't it supposed to storm really badly? It honestly hasn't been that bad so far.
+
+1/9 Way too busy today. Got a ton of stuff done.
+
+1/10 Last day to really relax before everything starts picking up speed again.
