@@ -19,13 +19,13 @@ Stuff I enjoy doing
 - Piano (when it's what I want to do)
 
 Main video games I play
-- BattleTabs!
+- BattleTabs! <-- best game in the world zero bias whatsoever
   - [BT About Me](https://bpf99.github.io/Battletabs)
 - Pokémon
   - [Pokémon About Me](https://bpf99.github.io/Pokemon) 
 - Super Smash Bros. Ultimate (Terry main)
-- Fall Guys
-- Clash Royale 
+- Clash Royale (Master II)
+- Fall Guys sometimes
 
-I mean that's all unless you want to see more lol<a href="https://bpf99.github.io/r" style="color: black;">.</a>
+I mean that's all unless you want to see more awful md lol<a href="https://bpf99.github.io/r" style="color: black;">.</a>
 
