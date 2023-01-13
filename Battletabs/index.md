@@ -6,7 +6,7 @@ My Battletabs Profile:
 - Moderator of the [official Discord server](https://discord.gg/battletabs)
   - Longest active player and Discord member 
   - I also help the developers with game balancing
-    - test
+    - currently helping with the new progression system
 - Battletabs legend
 - The only player with a ship design in-game
 - Tournament winner
