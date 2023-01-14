@@ -7,7 +7,7 @@ My Battletabs Profile:
   - Longest active player and Discord member 
   - I also help the developers with game balancing
     - Currently helping with the new progression system
-- Battletabs legend
+- 1 of only 6 ever Battletabs legends
 - The only player with a ship design in-game
 - Tournament winner
   - Although most other tournaments I lose in semis from bad luck or nerves
