@@ -51,3 +51,5 @@ Over 13 years ago (in case you're wondering if I'm violating Discord TOS): I was
 1/10 Last day to really relax before everything starts picking up speed again.
 
 1/23 Man it's been a while. Super busy recently, but just got over a massive stress point. Spending too much time on something else, though...
+
+1/24 I don't even know... I was honest but I really hope it can somehow turn out my way
