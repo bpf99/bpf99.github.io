@@ -7,9 +7,9 @@ Favorite mons:
 2. Espeon
 3. Oshawott
 
-On [Pokémon Showdown](https://play.pokemonshowdown.com), I'm not that great, but I'm working on my teambuilding and want to be competent before gen 9 releases.
+On [Pokémon Showdown](https://play.pokemonshowdown.com), I'm not that great, but I'm working on my teambuilding and want to be competent at some point.
 
-I play Monotype, UU, LC, AG, and some OU.
+I play Random Battles, Nat Dex, and OU.
 
 Don't ping me or DM me for tips, as I'm not that good at competitive battling. If you want [Battletabs](https://bpf99.github.io/Battletabs) tips though, I'm your guy.
 
