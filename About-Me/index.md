@@ -16,7 +16,7 @@ Stuff I enjoy doing
 - Running (5:20 mile)
 - Video Games
 - Reading
-- Piano, want to pick up guitar
+- Piano sometimes, want to pick up guitar
 
 Main video games I play
 - BattleTabs! <-- best game in the world zero bias whatsoever
@@ -25,7 +25,6 @@ Main video games I play
   - [Pokémon About Me](https://bpf99.github.io/Pokemon) 
 - Super Smash Bros. Ultimate (Terry main)
 - Clash Royale (Master II)
-- Fall Guys sometimes
 
 I mean that's all unless you want to see more awful md lol<a href="https://bpf99.github.io/r" style="color: black;">.</a>
 
