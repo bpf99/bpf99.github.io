@@ -3,6 +3,8 @@
 Discord doesn't give enough room for an about me so here I am trying to learn to use github.  
 I'm available from 8 AM PST to 9 PM PST on weekdays except for holidays :)
 
+If you're from the BT server trying to get more info, I'm taking a break for a while. I have a ton of stuff to deal with irl, and don't have the time or energy to do really do anything BT related right now.
+
 You can call me:
 - bpf99
 - bpf
