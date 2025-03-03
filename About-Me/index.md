@@ -5,22 +5,22 @@ I'm generally available from 8 AM PST to 9 PM PST on weekdays except for holiday
 
 I go by bpf99 or bpf
 
-[My (Not really updated) Blog](https://bpf99.github.io/Blog)
+[My (Not updated) Blog](https://bpf99.github.io/Blog)
 
 Stuff I enjoy
 - Hanging out with friends
-- Running (5:20 mile)
+- Running (4:58 mile)
 - Video Games
 - Reading
 - Piano sometimes, want to pick up guitar
 
 Main video games I play
-- BattleTabs! (best game no bias)
+- BattleTabs! 
   - [BT About Me](https://bpf99.github.io/Battletabs)
 - Pokémon
   - [Pokémon About Me](https://bpf99.github.io/Pokemon) 
 - Super Smash Bros. Ultimate (Terry)
-- Brawl Stars (Piper and Tick)
+- Brawl Stars (Piper and Belle)
 
 I mean that's all<a href="https://bpf99.github.io/r" style="color: black;">.</a>
 
